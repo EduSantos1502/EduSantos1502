@@ -1,16 +1,15 @@
-### Hi there 👋
+### Bem-Vindo ao meu Perfil 💤
 
-<!--
-**EduSantos1502/EduSantos1502** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Eduardo
 
-Here are some ideas to get you started:
+- Gosto de jogos
+- Gosto de Guaxinins 
+- Odeio Morando.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Meu Email é 📫
+
+educostac152@gmail.com
+
+- Só n incomode!!!
+
+![](https://media.tenor.com/W1IGDx7Qo2cAAAAM/racoon-raccoon.gif)
