@@ -1,6 +1,6 @@
 ### Bem-Vindo ao meu Perfil 💤
 
-Meu nome é Eduardo
+Meu nome é **Eduardo**
 
 - Gosto de jogos
 - Gosto de Guaxinins 
@@ -10,7 +10,7 @@ Meu nome é Eduardo
 
 ### Meu Email é 📫
 
-educostac152@gmail.com
+__educostac152@gmail.com__
 
 - Só n incomode!!!
 
