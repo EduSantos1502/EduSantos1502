@@ -4,7 +4,7 @@ Meu nome é Eduardo
 
 - Gosto de jogos
 - Gosto de Guaxinins 
-- Odeio Morando.
+- Odeio Morango.
 
 ### Meu Email é 📫
 
@@ -12,4 +12,4 @@ educostac152@gmail.com
 
 - Só n incomode!!!
 
-![](https://media.tenor.com/W1IGDx7Qo2cAAAAM/racoon-raccoon.gif)
+![](https://media.tenor.com/cj33WV81p54AAAAj/raccoon-roll.gif)
