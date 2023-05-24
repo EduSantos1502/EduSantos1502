@@ -6,10 +6,12 @@ Meu nome é Eduardo
 - Gosto de Guaxinins 
 - Odeio Morango.
 
+![](https://media.tenor.com/cj33WV81p54AAAAj/raccoon-roll.gif)
+
 ### Meu Email é 📫
 
 educostac152@gmail.com
 
 - Só n incomode!!!
 
-![](https://media.tenor.com/cj33WV81p54AAAAj/raccoon-roll.gif)
+![](https://media.tenor.com/rhvewohvKh4AAAAM/eating-raccoon-viralhog.gif)
